@@ -1,0 +1,1 @@
+# senacbigdataaula25---estatistica-descritiva
